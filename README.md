@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @saitmelo
 - 👀 I’m interested in cats
-- 🌱 I’m currently learning 3d desighns
+- 🌱 I’m currently learning gfx creating
 - 💞️ I’m looking to collaborate on roblox
 - 📫 How to reach me vailraleigh@gmail.com
 - 😄 Pronouns: he him
